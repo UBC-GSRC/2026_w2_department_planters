@@ -12,3 +12,14 @@
 
 - Leave the Procedure at the top of the page.  
 
+# 2026-01-26 DF
+measurements 
+- 440 cm end to end
+- 120cm wide
+- Longest section is 215cm long
+- 2" rough cut
+- 8" wide
+
+Posts 
+- 4"x4"
+- 24" long (3x8")
